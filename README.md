@@ -1,0 +1,2 @@
+# SHINKO-CHAN-BOT
+kuntul
